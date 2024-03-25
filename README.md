@@ -10,8 +10,6 @@
 📧 Quer entrar em contato comigo? Envie um e-mail para danielcbdias@gmail.com <br>
 <br>
 
-E não se esqueça de conferir o meu blog.
-
 <br>
 
 ## Sobre mim:
